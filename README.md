@@ -1,0 +1,1 @@
+# Life_Qr_code
